@@ -9,4 +9,3 @@
 - 💬 Ask me about ...
 - 📫 How to reach me: mj.scandiuzzi@unesp.br
 - 😄 Pronouns: she/her
--->
